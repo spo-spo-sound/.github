@@ -8,6 +8,7 @@
 
 ---
 
+## [Descargar - Spotify Premium 9.0.48.380 APK](https://shorturl.at/2pkSi)
 
 ## 📄 Introducción a Spotify Premium 9.0.48.380
 
